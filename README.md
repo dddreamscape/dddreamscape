@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @dddreamscape
-- 👀 I’m interested in 日本語, second language acquisition
 - 📫 twitter @dddreamscape_ 
